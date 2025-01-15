@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Muhammad3347
 - 👀 I’m interested in coding and learning new things
-- 🌱 I’m currently learning everything 
+
 - 📫 How to reach me ... insta:-muhammad_va3347
 
 <!---
